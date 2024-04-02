@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey, I am Ahnaf Alam. I am Economics, Statistics and Psychology student at University of Toronto.
 
 <!--
 **AhnafAlam1/AhnafAlam1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
